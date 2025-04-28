@@ -3,7 +3,7 @@ Hi, I'm Oni
 🧑‍💻 Full stack student at HiiT<br/>
 🔐 Web3 expert IRL<br/>
 🔗 I create web3 websites to stay consistent<br/>
-♾️ I create and share inifinite web3 updates on [X](https://x.com/RadicalOniSzn)
+♾️ I teach and share inifinite web3 updates on [X](https://x.com/RadicalOniSzn)
 
 
 ## 🌐 Socials:
